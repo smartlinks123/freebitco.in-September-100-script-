@@ -1,5 +1,5 @@
-# freebitco.in-September-100-script-
-I need someone to write my 100% freebitcoin winning strategy in script 
-My strategy is a made up of, permutation, combination, probability and randomness 
-Contact me. 
+#Best freebitco.in winning script in history  2020
+https://youtu.be/YBRTQ-J8aIs
+Contact 
 Email: smartlink3445@gmail.com
+Telegram: https://t.me/Dondada007
